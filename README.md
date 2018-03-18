@@ -1,0 +1,2 @@
+# -
+ne dopustim kva
